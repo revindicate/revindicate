@@ -4,6 +4,6 @@
 
 Check out my socials at either one of these links!
 
-https://guns.lol/qzg 
+https://guns.lol/qzg | https://revindicate.bio
 -----------------------
-https://revindicate.bio
+
