@@ -1,3 +1,1 @@
-# 👋 Hey, I'm revindicate
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F7F7&width=435&lines=owner+%26+founder+%40+infobin.cc)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F7F7&background=00000041&random=true&width=435&lines=Owner+%26+founder+of+Infobin.cc;%40revindicate+to+contact+me+on+discord)](https://git.io/typing-svg)
