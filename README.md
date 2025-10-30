@@ -2,6 +2,6 @@
 
 You can check out my socials at:
 
-https://revindicate.bio
+https://developing.lol
 -----------------------
 
